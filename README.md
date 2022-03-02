@@ -1,0 +1,1 @@
+Knowing where i am 
